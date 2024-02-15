@@ -28,15 +28,6 @@ We may employ third-party companies and individuals for various reasons, includi
 ### Security
 We value your trust in providing us with your Personal Information, and we strive to use commercially acceptable means of protecting it. However, no method of transmission over the internet or electronic storage is 100% secure and reliable, and we cannot guarantee its absolute security.
 
-### All-Age App
-Bonanza World: Explosions is designed to be used by individuals of all ages. We welcome users of varying age groups to enjoy our service. Whether you are a child, teen, or adult, we strive to provide an engaging and enjoyable experience for everyone.
-
-### Privacy for All Users
-While Bonanza World: Explosions is open to users of any age, we are committed to ensuring the privacy and security of all our users. We do not knowingly collect personally identifiable information from anyone, regardless of age. If you have any concerns or questions about privacy while using our app, please contact us.
-
-### Parental Guidance
-If you are a parent or guardian and have questions about the privacy practices of Bonanza World: Explosions, we encourage you to be involved in your child's use of the app. We are dedicated to creating a safe and enjoyable environment for users of all ages.If you have any further inquiries or if you believe that we have unintentionally collected personal information from a user under the age of 13, please contact us promptly, and we will take the necessary actions.
-
 ### Changes to This Privacy Policy
 We may update our Privacy Policy from time to time. Thus, we advise you to review this page periodically for any changes. We will notify you of any changes by posting the new Privacy Policy on this page. These changes are effective immediately after they are posted on this page.
 
